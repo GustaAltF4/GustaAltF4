@@ -9,12 +9,12 @@ Soy un desarrollador en formación, apasionado por **Java** ☕ con algo de expe
 
 ### 📫 Cómo contactarme:
 
-- [Instagram - @gusta.acosta.tattoo](https://instagram.com/gusta.acosta.tattoo/)
-- Correo: acostag.123456@gmail.com
+- [Instagram : @gusta.acosta.tattoo](https://instagram.com/gusta.acosta.tattoo/)
+- [Correo: acostag.123456@gmail.com](mailto:acostag.123456@gmail.com)
 
 ---
 
-¡Cualquier duda o consejo es bien recibido! 😁
+¡Cualquier duda oconsejo es bien recibido! 😁
 
 
 
